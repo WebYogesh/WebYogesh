@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @WebYogesh
 - 👀 I’m interested in ...web development
-- 🌱 I’m currently persuing ... b-tech 3rd sem 
+- 🌱 I’m currently persuing ... b-tech 6th sem 
 - 💞️ I’m looking to collaborate on ... website development
 - 📫 How to reach me ... contact no-7024569867
 
